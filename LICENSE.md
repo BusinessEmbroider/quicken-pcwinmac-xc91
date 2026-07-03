@@ -1,4 +1,4 @@
-# 
+# Inteligente Quicken preajustes para Mac OS | Personalizado Quicken preajustes para PC Windows. Con tarjetas corporativas y soporte multi-dispositivo — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
